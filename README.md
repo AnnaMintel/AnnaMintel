@@ -1,5 +1,5 @@
 #### :earth_americas: Minsk, Belarus
-####  :mailbox: Email:  annikamintel@yandex.ru
+####  :mailbox: Email:  hintell@proton.me
 #### LinkedIn:  https://www.linkedin.com/in/amintel/
 ---
 
